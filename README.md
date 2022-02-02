@@ -33,4 +33,4 @@ I spent most of my time at home during the winter break. I watched a British bak
 
 ## Jean-Daniel Liwanga
 
-Over break I went to Baltimore, Maryland with a group of friends to attend Cru Winter conference 2021. It was a spiritual retreat so a lot of time spent meditating and praying. Then I got back and my whole family got Covid and that was it.
+Over break I went to Baltimore, Maryland with a group of friends to attend Cru Winter conference 2021. It was a spiritual retreat so a lot of time spent meditating and praying. I met a lot of people and had loads of fun. I explored the city of Baltimore, which amazing and honestly cleaner then I expected. Then I got back and my whole family got Covid for at least 2 weeks and that was it.
