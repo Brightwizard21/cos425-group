@@ -32,5 +32,10 @@ Over the winter break, my partner and I travelled to New Jersey to spend Christm
 I spent most of my time at home during the winter break. I watched a British baking show, and it made me want to learn baking. I practiced baking some fun stuff, like macarons and cream puffs, and they came out good. Also, I purchased the entire series of Demon Slayer books and enjoyed reading them. They were expensive, but I thought they were worth buying.
 
 ## Jean-Daniel Liwanga
-
 Over break I went to Baltimore, Maryland with a group of friends to attend Cru Winter conference 2021. It was a spiritual retreat so a lot of time spent meditating and praying. I met a lot of people and had loads of fun. I explored the city of Baltimore, which amazing and honestly cleaner then I expected. Then I got back and my whole family got Covid for at least 2 weeks and that was it.
+
+## Max Carter
+Over winter break we had a good amount of family come to Maine for the holidays.  Most notibly would be my sister and her husband and newborn daughter.  This was particularly special because it was the first time I met her and the first time my nearly one year old son has met them all.  He did seem to recognize them from facetimes.   After the holidays it was a lot of cleaning and chill time at the house.  My wife and I did manage to get to Thompson's point to go ice skating for our anniversary (That was our first date).
+
+## Cooper Duncan
+I spent the majority of the winter break relaxing in preparation for the spring semester. I spent alot of my time playing games with friends and hanging out with my girlfriend. My brother decided to move out and got his own place so I helped him with all the moving. Other than that, I just tried to enjoy the break the best I could.
