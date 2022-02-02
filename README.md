@@ -27,3 +27,4 @@ I spent most of my time at home during the winter break. I watched a British bak
 
 ##Jason Tyler
 I spent pretty much all of my time over winter break sleeping and reading. I did some brainstorming for game ideas (which basically includes mechanics, the world, etc.). I also got really into reading manga again (with my favorite being So I'm a Spider, So What?) which resulted in me buying three of the light novels. Beyond playing games, sleeping, and reading manga, I tried fixing my sleeping schedule (and failed), I made Irish Baileys Icecream with my dad, I also did some brainstorming for a couple of games I'd be interested in making. It was a pretty good time all around.
+
