@@ -31,6 +31,9 @@ Over the winter break, my partner and I travelled to New Jersey to spend Christm
 
 I spent most of my time at home during the winter break. I watched a British baking show, and it made me want to learn baking. I practiced baking some fun stuff, like macarons and cream puffs, and they came out good. Also, I purchased the entire series of Demon Slayer books and enjoyed reading them. They were expensive, but I thought they were worth buying.
 
+##Jason Tyler
+I spent pretty much all of my time over winter break sleeping and reading. I did some brainstorming for game ideas (which basically includes mechanics, the world, etc.). I also got really into reading manga again (with my favorite being So I'm a Spider, So What?) which resulted in me buying three of the light novels. Beyond playing games, sleeping, and reading manga, I tried fixing my sleeping schedule (and failed), I made Irish Baileys Icecream with my dad, I also did some brainstorming for a couple of games I'd be interested in making. It was a pretty good time all around.
+
 ## Jean-Daniel Liwanga
 Over break I went to Baltimore, Maryland with a group of friends to attend Cru Winter conference 2021. It was a spiritual retreat so a lot of time spent meditating and praying. I met a lot of people and had loads of fun. I explored the city of Baltimore, which amazing and honestly cleaner then I expected. Then I got back and my whole family got Covid for at least 2 weeks and that was it.
 
