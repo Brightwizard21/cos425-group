@@ -38,6 +38,9 @@ Over the winter break, my partner and I travelled to New Jersey to spend Christm
 
 I spent most of my time at home during the winter break. I watched a British baking show, and it made me want to learn baking. I practiced baking some fun stuff, like macarons and cream puffs, and they came out good. Also, I purchased the entire series of Demon Slayer books and enjoyed reading them. They were expensive, but I thought they were worth buying.
 
+## Jack O'Connor
+During the winter break I didn't really do much. My freetime was mainly spent going to the gym, hanging with friends, and playing video games (primarily Valorant). One of the main things I always look forward to during breaks is getting back on a good gym schedule, and also going with my friends that are home from college.
+
 ## Jackson Connors
 I admittedly did not do too much over my winter break. Lots of my time was either spent at home or meeting up with friends or family that I hadn't seen for varying amounts of time. It was definitely a nice break from schoolwork, but it could only last so long.
 
