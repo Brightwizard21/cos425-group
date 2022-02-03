@@ -38,6 +38,9 @@ Over the winter break, my partner and I travelled to New Jersey to spend Christm
 
 I spent most of my time at home during the winter break. I watched a British baking show, and it made me want to learn baking. I practiced baking some fun stuff, like macarons and cream puffs, and they came out good. Also, I purchased the entire series of Demon Slayer books and enjoyed reading them. They were expensive, but I thought they were worth buying.
 
+## Jackson Connors
+I admittedly did not do too much over my winter break. Lots of my time was either spent at home or meeting up with friends or family that I hadn't seen for varying amounts of time. It was definitely a nice break from schoolwork, but it could only last so long.
+
 ##Jason Tyler
 I spent pretty much all of my time over winter break sleeping and reading. I did some brainstorming for game ideas (which basically includes mechanics, the world, etc.). I also got really into reading manga again (with my favorite being So I'm a Spider, So What?) which resulted in me buying three of the light novels. Beyond playing games, sleeping, and reading manga, I tried fixing my sleeping schedule (and failed), I made Irish Baileys Icecream with my dad, I also did some brainstorming for a couple of games I'd be interested in making. It was a pretty good time all around.
 
